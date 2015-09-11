@@ -1,6 +1,4 @@
-aaawq
-:wq
-t
+aaa
 
 dsd
 
